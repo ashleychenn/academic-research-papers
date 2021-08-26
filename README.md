@@ -5,5 +5,5 @@
 <br>
 <b>Editorial Content Shift in Seventeen Magazine</b>
 <br>Content Analysis on Editorial Changes at Long-running Magazine</br>
-<p>In this study, I looked at how content in the popular teen magazine, <i>Seventeen</i> shifted during a period of great social change (late 1970s to late 1980s). Magazines like <i>Seventeen</i> can play a significant role in influencing what young women think about and how they think about it. I presented my study at the Far West Popular Culture Conference in Las Vegas, Nevada, USA.</p>
+<br><p>In this study, I looked at how content in the popular teen magazine, <i>Seventeen</i> shifted during a period of great social change (late 1970s to late 1980s). Magazines like <i>Seventeen</i> can play a significant role in influencing what young women think about and how they think about it. I presented my study at the Far West Popular Culture Conference in Las Vegas, Nevada, USA.</p></br>
 </br>
